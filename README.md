@@ -4,7 +4,7 @@
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking for a new adventure, one that involves a hackathon maybe? 🙄
 - ⚡ Fun fact: I love Pizza 🍕
-- 📥 Reach me out : jm_bouzaher@esi.dz 📧
+- 📥 Reach me out : jm_bouzaher@esi.dz || mlb03@mail.aub.edu📧
 
 ### Connect with me:
 
